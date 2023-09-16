@@ -1,2 +1,0 @@
-# Polytech-SPM
-Freelancer
